@@ -4,3 +4,4 @@ Just then, she saw a big boulder and ran towards it.
 When she arrived in front of the rock, she realized the rock was magic and it started talking. 
 'Please give me some water' she said. 
 Water rushed out of the rock and they became friends.
+Just kidding she was just delusional from the lack of water. 
